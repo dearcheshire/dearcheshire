@@ -4,8 +4,10 @@
   
 ![](https://komarev.com/ghpvc/?username=goodbyehome&color=db7183&abbreviated=true&style=flat-square&label=+ㅤㅤㅤㅤㅤㅤcutiesㅤ+ㅤㅤㅤㅤㅤㅤ)
 
-i come online to afkmaxx hi eve 
-feel free 2 int 
+ dead pay 20$ to revive 
+
+hi eve 
+
 
 
 [新book](https://nohome.atabook.org/)
